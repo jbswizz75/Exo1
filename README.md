@@ -1,1 +1,1 @@
-# Exo1
+Selon les médias américains, la police avait été alertée de problèmes de voisinage concernant Nikolas Cruz, qui travaillait par ailleurs dans un magasin du quartier en parallèle du lycée. Suivi par un établissement de soins psychiatriques, il avait interrompu son traitement depuis un an, détaille le maire du comté de Broward.
